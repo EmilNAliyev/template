@@ -1,0 +1,1 @@
+# Elnur templati hazirliya bilmedim
